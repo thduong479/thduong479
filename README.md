@@ -1,9 +1,14 @@
 ### Hi, this is Duong 👋
-## . 👩‍🎓 MS in Business Analytics @ UOP
-## . 📈 Actively seeking opportunities related to business analysis or data analysis, starting in Spring 2024 
-## . 🙆‍♀️ Having a sincere passion for working with numbers and a strong desire to discover valuable insights through data analysis.
-## . 💝 I love playing piano, watching movies, cooking and traveling
-## . 📩 Contact: thduong479@gmail.com
+
+👩‍🎓 MS in Business Analytics @ UOP
+
+📈 Actively seeking opportunities related to business analysis or data analysis, starting in Spring 2024 
+
+🙆‍♀️ Having a sincere passion for working with numbers and a strong desire to discover valuable insights through data analysis.
+
+💝 I love playing piano, watching movies, cooking, and traveling
+
+📩 Contact: thduong479@gmail.com
 
 
 
