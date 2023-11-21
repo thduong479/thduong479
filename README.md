@@ -2,9 +2,9 @@
 
 👩‍🎓 MS in Business Analytics @ UOP, Bachelor's in Business Administration (minor in Finance)
 
-📈 Actively seeking opportunities related to business analysis or data analysis, starting in Spring 2024.
+📈 Actively seeking opportunities related to financial analysis, business analysis, or data analysis, starting in Spring 2024.
 
-🙆‍♀️ Having a sincere passion for working with numbers and a strong desire to discover valuable insights through data analysis.
+🙆‍♀️ Having a sincere passion for working with data and a strong desire to discover valuable insights through analysis.
 
 💝 I love playing piano, watching movies, cooking, and traveling.
 
