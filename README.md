@@ -1,6 +1,6 @@
 ### Hi, this is Duong 👋
 
-👩‍🎓 MS in Business Analytics @ UOP
+👩‍🎓 MS in Business Analytics @ UOP, Bachelor's in Business Administration (minor in Finance)
 
 📈 Actively seeking opportunities related to business analysis or data analysis, starting in Spring 2024.
 
