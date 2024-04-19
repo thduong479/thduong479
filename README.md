@@ -1,14 +1,14 @@
 ### Hi, this is Duong 👋
 
-👩‍🎓 MS in Business Analytics @ UOP, Bachelor's in Business Administration (minor in Accounting & Finance)
+👩‍🎓 MSc in Business Analytics @ UOP
 
-📈 Actively seeking opportunities related to accounting & finance 
+📈 Actively seeking opportunities related to data analytics.
 
 🙆‍♀️ Having a sincere passion for working with numbers and a strong desire to discover valuable insights.
 
 💝 I love playing piano, watching movies, cooking, and traveling.
 
-📩 Contact: thduong479@gmail.com
+📩 Contact: htd.nguyen479@gmail.com
 
 
 
