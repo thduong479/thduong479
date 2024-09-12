@@ -2,13 +2,13 @@
 
 👩‍🎓 MSc in Business Analytics @ UOP
 
-📈 Actively seeking opportunities related to data analytics.
+📈 Actively seeking opportunities related to financial analytics.
 
 🙆‍♀️ Having a sincere passion for working with numbers and a strong desire to discover valuable insights.
 
 💝 I love playing piano, watching movies, cooking, and traveling.
 
-📩 Contact: htd.nguyen479@gmail.com
+📩 Contact: irene.dnguyen47@gmail.com
 
 
 
