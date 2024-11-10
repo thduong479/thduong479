@@ -1,8 +1,8 @@
 ### Hi, this is Duong 👋
 
-👩‍🎓 MSc in Business Analytics @ UOP / BBA, Finance @ UEH
+👩‍🎓 MSc in Business Analytics @ UOP / BBA @ UEH
 
-📈 Actively seeking opportunities related to financial analytics.
+📈 Actively seeking opportunities related to business & financial analytics.
 
 🙆‍♀️ Having a sincere passion for working with numbers and a strong desire to discover valuable insights.
 
