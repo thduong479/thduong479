@@ -2,13 +2,13 @@
 
 👩‍🎓 MSc in Business Analytics @ UOP / BBA, Finance @ UEH
 
-📈 Actively seeking opportunities related to business & financial analytics.
+📈 Actively seeking opportunities related to financial & data analytics.
 
 🙆‍♀️ Having a sincere passion for working with numbers and a strong desire to discover valuable insights.
 
 💝 I love playing piano, watching movies, cooking, and traveling.
 
-📩 Contact: irene.dnguyen47@gmail.com
+📩 Contact: thduong479@gmail.com
 
 
 
