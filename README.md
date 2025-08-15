@@ -1,4 +1,4 @@
-### Hi, this is Irene 👋
+### Hi, this is Duong - you can call me Irene 👋
 
 👩‍🎓 MSc in Business Analytics @ UOP / BBA, Finance @ UEH
 
